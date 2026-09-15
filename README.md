@@ -1,4 +1,4 @@
-# Hi there, I'm Pavan Kulal 👋
+# Hi there, I'm Pavan Kulal ✌️
 
 <p align="center">
   <a href="https://github.com/kulalpavan">
